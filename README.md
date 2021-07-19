@@ -1,7 +1,7 @@
 - @XX6B سم ؟
-- 👀 I’m interested in ...
+- شتبي ؟
 - هرحب ⚡
-- 💞️ I’m looking to collaborate on ...
+- ترا ازعجتناا ؟
 - 📫 How to reach me ...
 
 <!---
